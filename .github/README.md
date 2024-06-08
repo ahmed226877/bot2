@@ -1,7 +1,7 @@
 ![MODE-Music]([https://telegra.ph/file/f9d65bf4364e302d6e532.jpg])
 # 𝗠𝗨𝗦𝗜𝗖 𝗧𝗛𝗘 𝗪𝗢𝗥𝗜𝗗 ⁾⇣✿💖┊❥
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=WELCOME+TO+MUSIC-SPIDER+AN+ADVANCE+BOT)]([https://github.com/ahmed226877])
+[![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=WELCOME+TO+MUSIC-𝗧𝗛𝗘 𝗪𝗢𝗥𝗜𝗗+AN+ADVANCE+BOT)]([https://github.com/ahmed226877])
 
 <p align="center">
     ─「 sᴜᴩᴩᴏʀᴛ 」─
